@@ -35,9 +35,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The destruction of Sodome a sermon preached at a publicke fast, before the honourable assembly of th
+
 #####Body#####
-The destruction of Sodome a sermon preached at a publicke fast, before the honourable assembly of th
+
+1. THE
+DESTRVCTION
+Of SODOME.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
